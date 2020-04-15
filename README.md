@@ -1,2 +1,5 @@
 # hello-world
-only learning
+只学习
+我尼玛，都是些大神
+大神带带我
+求带大神
